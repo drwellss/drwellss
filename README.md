@@ -1,2 +1,2 @@
 - E-MAIL: multron31@gmail.com
-- DISCORD: dexter_morgan3169
+- DISCORD: dextermorgan31.
